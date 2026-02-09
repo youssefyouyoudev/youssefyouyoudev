@@ -20,7 +20,8 @@
 - 🔭 Currently working on **ErPlus**
 - 🌱 Learning **AI / Computer Science**
 - 👨‍💻 All projects: https://youssefyouyou.com
-- 📫 Contact: **youx3ssef@gmail.com**
+- 📫 Contact: **jesuisyouyouyoussef@gmail.com**
+- 📫 Contact: **contact@youssefyouyou.com**
 
 ---
 
